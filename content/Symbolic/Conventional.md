@@ -1,5 +1,5 @@
+![[GaddisJR_Money.jpg]]
 
-![[Pasted image 20261123001929.png]]
 
 # *JR*— William Gaddis
 

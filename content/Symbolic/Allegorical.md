@@ -1,8 +1,8 @@
 ---
 Draft: "False"
 ---
+![[Leviathan_Hobbes.webp]]
 
-![[Pasted image 20261123001642.png]]
 
 # *Leviathan*—Thomas Hobbes
 
