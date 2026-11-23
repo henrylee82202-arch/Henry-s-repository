@@ -2,7 +2,7 @@
 Draft: "False"
 ---
 
-![[Pasted image 20261122214901.png]]
+![[Pasted image 20261123001642.png]]
 
 # *Leviathan*—Thomas Hobbes
 

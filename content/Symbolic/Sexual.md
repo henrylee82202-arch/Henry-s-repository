@@ -1,5 +1,5 @@
 
-![[Pasted image 20261122204349.png]]
+![[Pasted image 20261123002036.png]]
 
 # *The Art of Seduction*—Robert Greene
 

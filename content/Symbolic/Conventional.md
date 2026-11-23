@@ -1,5 +1,5 @@
 
-![[Pasted image 20261122201806.png]]
+![[Pasted image 20261123001929.png]]
 
 # *JR*— William Gaddis
 

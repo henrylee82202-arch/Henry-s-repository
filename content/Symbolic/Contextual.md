@@ -1,4 +1,4 @@
-![[Pasted image 20261122211422.png]]
+![[Pasted image 20261123001750.png]]
 
 # *To Kill a Mockingbird*—Harper Lee
 
