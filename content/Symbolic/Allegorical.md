@@ -1,3 +1,6 @@
+---
+Draft: "False"
+---
 
 ![[Pasted image 20261122214901.png]]
 
