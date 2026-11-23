@@ -1,6 +1,6 @@
 
 
-![[Pasted image 20261123001535.png]]
+![Abstract book cover](../images/Pasted%20image%2020261123001535.png)
 
 # *Oulipo: A Primer of Potential Literature*—Warren F. Motte Jr.
 
